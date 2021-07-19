@@ -1,1 +1,0 @@
-https://Udarkam.github.io/rsschool-cv/cv
